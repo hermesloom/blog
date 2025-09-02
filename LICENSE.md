@@ -1,0 +1,1 @@
+The NO FUCKERY license.
